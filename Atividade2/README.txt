@@ -1,0 +1,2 @@
+Tive muita dificuldade de fazer o exercício 2. 
+Pedi ajuda de amigos meus e tentei fazer algo parecido com o que eles fizeram mas não consegui fazer o exercício funcionar e não sei exatamente o que estava acontecendo, vou continuar tentando no futuro.
